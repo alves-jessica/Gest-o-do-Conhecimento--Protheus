@@ -1,1 +1,1 @@
-# Gest-o-do-Conhecimento--Protheus
+# Gestão do Conhecimetno - Protheus
